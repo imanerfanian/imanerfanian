@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working Redesign of Palace Hotel Located in Kish Island<br>💬 Ask me about ANYTHING !
+🔭 I’m currently working redesiging network infrastructure of AVA Airline<br>💬 Ask me about ANYTHING !
 
 
 ## 🌐 Socials:
